@@ -1,1 +1,5 @@
 # hello-world
+HAIKAL
+HIKAMI
+COOL
+SEKALI
